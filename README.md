@@ -1,5 +1,5 @@
 # Prediction-2012-
-My first music album from 2012.
+My first music instrumental album from 2012.
 
 Songs were made during 2011 when I started making music.
 
